@@ -1,0 +1,1 @@
+# Misty-Screen-Recorder-Lite-Privacy-Policy
